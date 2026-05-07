@@ -45,6 +45,7 @@ Check back soon — or [connect with me on LinkedIn](https://www.linkedin.com/in
 
 ### 📫 How to reach me
 
+- Tg: @medovnik
 - LinkedIn: [linkedin.com/in/mikhail-medovnik](https://www.linkedin.com/in/mikhail-medovnik/)
 - Email: medovnikmv@gmail.com
 
